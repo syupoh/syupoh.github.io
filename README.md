@@ -1,1 +1,0 @@
-# syupoh.github.io
